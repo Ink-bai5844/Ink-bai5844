@@ -15,7 +15,7 @@ Most of my time is spent learning, experimenting, and turning ideas into small p
 
 ## Links
 
-- Website: https://inkbai.art
+- Website: https://inkbai.fun
 - GitHub: @Ink-bai5844
 
 ---
